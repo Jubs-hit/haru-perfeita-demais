@@ -1,2 +1,2 @@
 # haru-perfeita-demais
-só verdades
+só verdades absolutas
